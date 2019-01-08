@@ -15,7 +15,7 @@ UNITS: US
 * 1⁄2 cup mayonnaise
 * 1⁄2 cup sour cream
 * 1 envelope ranch dip mix
-* 1 jar bacon bits (or to taste)
+* 5 jar bacon bits (or to taste)
 * 4 green onions, chopped
 * 1 (8 count) package 10-inch flour tortillas
 
